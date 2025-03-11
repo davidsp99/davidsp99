@@ -9,5 +9,5 @@
 - 💬 Ask me about ...asdsadasd
 - 📫 How to reach me: ...asdsadasdas
 - 😄 Pronouns: ...dsadasdasd
-- ⚡ Fun fact: ...dasdasdads
+- ⚡ Fun fact: ...dasdasdads hola como estas
 -->
